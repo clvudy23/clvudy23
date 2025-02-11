@@ -2,7 +2,7 @@
 - 👀 I’m interested in Ai and computer science
 - 🌱 I’m currently learning computer science
 - 💞️ I’m looking to collaborate on many interesting projects
-- 📫 How to reach me : cssin075@fiu.edu
+- 📫 How to reach me : csain075@fiu.edu
 - 😄 Pronouns: HE/HIM
   
 
